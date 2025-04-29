@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @v1nm
-- 👀 I’m interested in games in general, that's pretty much why im here.
-- 🌱 I’m currently learning coding n stuff
-- 💞️ I’m looking to collaborate on nothing special
-- 📫 How to reach me just dm me on instagram @sayonasam
+-  Hi, I’m @v1nm
+-  I’m interested in games in general, that's pretty much why im here.
+-  I’m currently learning coding n stuff
+-  I’m looking to collaborate on nothing special
+- How to reach me just dm me on instagram @terribledayforsun
